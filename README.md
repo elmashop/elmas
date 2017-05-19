@@ -1,0 +1,2 @@
+# elmas
+kami ELMA shop online hadir untuk membantu anda memberikan pilihan  Produk yang Terjamin Kualitasnya serta dengan Model yang cukup simple  dan Menarik dalam belanja online untuk membeli sebuah kado yg special namun dengan harga yang terjangkau/murah,cukup dengan memesan &amp; memilih Produk yang anda sukai Etalase toko kami ,maka kami layani segera dengan mengirimkan produk yang anda inginkan kealamat tujuan. PEMESANAN LEBIH LANJUT  WA . 085718031636
